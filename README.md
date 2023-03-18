@@ -1,1 +1,1 @@
-https://Iprit68.github.io/rsschool-cv/cv
+https://Iprit68.github.io/rsschool-cv/
